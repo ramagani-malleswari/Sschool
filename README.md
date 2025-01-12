@@ -1,1 +1,1 @@
-# Sschool
+# School
